@@ -3,7 +3,7 @@
 
 - I´m open to: **Full-time or part-time roles**
 
-- See my resume: [Resume](https://acrobat.adobe.com/id/urn:aaid:sc:EU:c45411a9-09ea-4ef8-9076-e051ba1c4101)
+- See my [Resume](https://acrobat.adobe.com/id/urn:aaid:sc:EU:c45411a9-09ea-4ef8-9076-e051ba1c4101).
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
