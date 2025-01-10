@@ -1,4 +1,4 @@
-# <h1 align="left">Hi there, I'm Eridon Cubaj👋</h1>
+# <h2 align="left">Hi there, I'm Eridon Cubaj👋</h2>
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=ericubajj&label=Profile%20views&color=0e75b6&style=flat" alt="ericubajj" /> </p>
 
 - I´m open to: **Full-time or part-time roles**
